@@ -1,0 +1,2 @@
+# Aura.
+Información del producto
